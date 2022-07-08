@@ -1,6 +1,7 @@
 
 
-![portfolio](https://user-images.githubusercontent.com/95456210/177909141-ecb7481f-b784-4a36-9b02-9a6878be7faa.gif)
+
+![portfolio (2)](https://user-images.githubusercontent.com/95456210/177910090-9c570b4c-3bf6-4750-9979-e941cc246d0b.gif)
 
 
 
